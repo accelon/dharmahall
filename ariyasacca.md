@@ -1,0 +1,1 @@
+[[dukkha|苦]]（現象）、[[samudaya|集]]（煩惱）、[[nirodha|滅]]（目標）、[[magga|道]]（方法）。

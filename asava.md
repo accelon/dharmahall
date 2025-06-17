@@ -1,0 +1,1 @@
+[[kama|慾]]漏、[[bhava|存有]]漏、[[ditthi|見]]漏、[[avijja|無明]]漏。

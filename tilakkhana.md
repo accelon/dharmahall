@@ -1,0 +1,1 @@
+[[namarupa|名色]]的特質，即[[anicca|無常]]、[[dukkha|苦]]、[[anatta|無我]]。

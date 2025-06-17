@@ -1,0 +1,1 @@
+[[cittajarupa|心生色聚]]、[[kammajarupa|業生色聚]]、消化[[aharajarupa|食生色聚]]以外的所有[[rupakalapa|色聚]]。

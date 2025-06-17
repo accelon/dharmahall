@@ -1,0 +1,1 @@
+[[saddha|信]]力、[[viriya|精進]]力、[[sati|念]]力、[[samadhi|定]]力、[[prajna|慧]]力。

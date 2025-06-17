@@ -1,0 +1,1 @@
+[[bhavangcalana|有分波動]]→[[bhavangaupaccheda|有分斷]]→[[manodvaravajjana|意門轉向]]→[[javana|速行]]*7→[[tadarammana|彼所緣]]*2

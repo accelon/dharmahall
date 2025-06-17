@@ -1,0 +1,1 @@
+[[satipatthana|四念住]] [[sammappadhana|四正勤]] [[iddhipada|四神足]]  [[pancindriya|五根]]  [[pancabala|五力]]  [[bojjhanga|七覺支]]  [[atthangikamagga|八正道]]

@@ -1,0 +1,1 @@
+由[[vipaka|果報]]產生的心。善不善果報：[[pancavinnana|五識]]*10[[sampaticchana|領受]]*2[[santirana|推度]]*3，[[kamavacara|慾界]][[vipakacitta|果報心]]*8 [[rupavacara|色界]][[vipakacitta|果報心]]*5，[[arupavacara|無色界]][[vipakacitta|果報心]]*4。只有[[santirana|推度]]及[[tiloka|三界]][[vipakacitta|果報心]]可以[[vithimutta|離路]]。

@@ -1,0 +1,1 @@
+構成生命的五種聚集：即[[rupakhanda|色蘊]]、[[vedana|受]]蘊、[[sanna|想]]蘊、[[sankhara|行]]蘊、[[vinnana|識]]蘊。後四者也稱為[[namakhanda|名蘊]]。

@@ -1,0 +1,1 @@
+認為此[[kaya|身]]實有之[[miccaditthi|邪見]]。

@@ -1,0 +1,1 @@
+[[chanda|欲]]、[[citta|心]]、[[padhanasankara|勤行]]、[[vimamsa|觀]]。完善之後成為[[iddhipada|四神足]]

@@ -1,0 +1,1 @@
+指證悟[[nibbana|涅槃]]之的[[ariya|聖]][[puggala|個體]]。

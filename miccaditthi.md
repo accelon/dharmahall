@@ -1,0 +1,1 @@
+不能見五蘊之[[tilakkhana|三相]]。[[sammaditthi|正見]]之相反。

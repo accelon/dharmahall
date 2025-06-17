@@ -1,0 +1,1 @@
+[[samadhi|定]]力已充分培育，[[jhananga|禪支]]強而有力，穩固於目標的狀態，詳見[[appanavithi|安止心路]]。

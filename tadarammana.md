@@ -1,0 +1,1 @@
+在[[javana|速行]]之後生起、[[arammana|所緣]]相同的[[vipakacitta|果報心]]。

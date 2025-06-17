@@ -1,0 +1,1 @@
+鎮伏[[nirvarana|五蓋]]，。即[[appanasamadhi|安止定]]。如[[四禪八定]]，

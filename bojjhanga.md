@@ -1,0 +1,1 @@
+開展[[bodhi|菩提]]的要素：[[sati|念]]、[[dhammavicaya|擇法]]、[[viriya|精進]]、[[piti|喜]]、[[passaddhi|輕安]]、[[samadhi|定]]、[[upekkha|捨]]

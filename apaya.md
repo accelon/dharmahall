@@ -1,0 +1,1 @@
+不好的去處，即：[[niraya|地獄]]、[[tiracchana|畜生]]、[[peta|鬼]]。

@@ -1,0 +1,1 @@
+指[[rupadhamma|色法]]或[[cakkhu|眼]]所能感知的[[ruparammana|色塵]]。

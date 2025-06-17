@@ -1,0 +1,1 @@
+四[[rupavacarajjhana|色界禪]]及四[[arupavacarajjhana|無色界禪]]。

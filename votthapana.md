@@ -1,0 +1,1 @@
+[[pancadvaravithi|五門心路]]之[[javana|速行]]之前確定所緣。同[[manodvaravithi|意門心路]]和[[appanavithi|安止心路]]的[[manodvaravajjana|意門轉向]]心。

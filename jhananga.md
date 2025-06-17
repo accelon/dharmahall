@@ -1,0 +1,1 @@
+支持[[jhana|禪那]]的五個支柱。即：[[vitakka|尋]]、[[vicara|伺]]、[[piti|喜]]、[[sukha|樂]]、[[ekaggata|一境性]]。

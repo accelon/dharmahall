@@ -1,0 +1,1 @@
+[[catummaharaja|四大王天]]、[[tavatimsa|忉利天]]、[[yama|夜摩天]]、[[tusita|兜率天]]、[[nimmana|化樂天]]、[[paranimmitavasavatti|他化自在天]]。

@@ -1,0 +1,1 @@
+[[lobhaakusalamula|貪不善根]]、[[dosaakusalamula|瞋不善根]]、[[mohaakusalamula|痴不善根]]的集合名詞。不善業之原因。

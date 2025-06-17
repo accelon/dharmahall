@@ -1,0 +1,1 @@
+指不含[[manovinnanadhatu|意識]]的眼耳鼻舌身識。

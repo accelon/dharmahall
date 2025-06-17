@@ -1,0 +1,1 @@
+[[samanaphala|沙門果]]分[[magga|道]]和[[phala|果]]，四組八種男性(purisa)[[puggala|個體]]。

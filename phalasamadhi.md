@@ -1,0 +1,1 @@
+以[[phalacitta|果心]]為[[javana|速行]]之[[appanavithi|安止心路]]。

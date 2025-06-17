@@ -1,0 +1,1 @@
+視覺感官，視覺的物質基礎是眼中的眼[[pasadarupa|淨色]]，與[[ruparammana|色塵]]踫[[phassa|觸]]時則生起[[cakkhuvinnana|眼識]]。

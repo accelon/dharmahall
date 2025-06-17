@@ -1,0 +1,1 @@
+[[vidya|明]]及[[pariyatti|實踐]]圓滿

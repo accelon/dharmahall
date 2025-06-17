@@ -1,0 +1,1 @@
+正當的語言。不說[[musavada|妄語]]、[[apisuna|兩舌]]、[[dubbaca|惡口]]、[[samphappala|綺語]]。

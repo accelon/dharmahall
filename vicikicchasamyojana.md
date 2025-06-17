@@ -1,0 +1,1 @@
+對三寶有[[vicikiccha|疑]]之[[samyojana|結]]。

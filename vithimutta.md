@@ -1,0 +1,1 @@
+[[patisandhi|結生心]]、[[bhavanga|有分]]心、[[cuticitta|死亡心]]之集合名詞，因其可以不在心路生起故，於同一期生命中為同一種[[vipakacitta|果報心]]。

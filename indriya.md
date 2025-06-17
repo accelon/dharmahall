@@ -1,0 +1,1 @@
+六種感覺器官，即[[cakkhu|眼]]、[[sota|耳]]、[[ghana|鼻]]、[[jivha|舌]]、[[kaya|身]]、[[mano|意]]。

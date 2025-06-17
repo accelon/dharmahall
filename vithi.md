@@ -1,0 +1,1 @@
+心按照一定規律或路線運行。有[[pancadvaravithi|五門心路]]，[[manodvaravithi|意門心路]]，[[appanavithi|安止心路]]。

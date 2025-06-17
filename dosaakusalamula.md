@@ -1,0 +1,1 @@
+[[dosa|瞋]]、[[issa|嫉妒]]、[[macchariya|慳吝]]、[[kukkuca|悔]]。

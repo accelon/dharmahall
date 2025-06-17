@@ -1,0 +1,1 @@
+聖道的八個要素：[[sammaditthi|正見]]、[[sammasankappa|正思惟]]、[[sammavaca|正語]]、[[sammakammata|正業]]、[[sammaajiva|正命]]、正[[viriya|精進]]、[[sammasati|正念]]、[[sammasamadhi|正定]]

@@ -1,0 +1,1 @@
+聽覺感官，聽覺的物質基礎是耳中的耳[[pasadarupa|淨色]]，與[[saddarammana|聲]]踫[[phassa|觸]]時則生起[[sotavinnana|耳識]]。

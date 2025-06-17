@@ -1,0 +1,1 @@
+看見[[khanda|五蘊]]有[[tilakkhana|三相]]。

@@ -1,0 +1,1 @@
+利用定力，透析[[namarupa|名色]]具有[[tilakkhana|三相]]的修行。

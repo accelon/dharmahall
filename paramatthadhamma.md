@@ -1,0 +1,1 @@
+[[citta|心]]、[[cetasika|心所]]、[[rupadhamma|色法]]、[[nibbana|涅槃]]之集合名詞。

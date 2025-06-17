@@ -1,0 +1,1 @@
+永斷所有的[[samyojana|結]]和[[anusayakilesa|隨眠煩惱]]，沒有下一生。

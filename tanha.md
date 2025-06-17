@@ -1,0 +1,1 @@
+1. 對[[六塵]]的渴愛，想要獲得、維持[[khanda|五蘊]]的基本衝動（六愛身taṇhākāyā），2. [[kamatanha|慾愛]]、[[bhavatanha|有愛]]、[[vibhavatanha|無有愛]]

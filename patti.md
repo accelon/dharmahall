@@ -1,0 +1,1 @@
+獲得修行之成就，如得到[[uttarimanussadhamma|過人法]]

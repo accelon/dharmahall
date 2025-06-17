@@ -1,0 +1,1 @@
+[[appanasamadhi|安止定]]的障礙。[[kamachanda|慾欲]]、[[vyapada|瞋恚]]、[[thina|昏沉]]與[[middha|睡眠]]、[[uddhacca|掉舉]]與[[kukkuca|悔]]、[[vicikiccha|疑]]。

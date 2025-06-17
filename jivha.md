@@ -1,0 +1,1 @@
+味覺感官，味覺的物質基礎是耳中的舌[[pasadarupa|淨色]]，與[[rasarammana|味]]踫[[phassa|觸]]時則生起[[jivhavinnana|舌識]]。

@@ -1,0 +1,1 @@
+即[[cakkhu|眼]]，作為[[attharasadhatu|十八界]]之元素時的名稱。

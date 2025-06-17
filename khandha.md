@@ -1,0 +1,1 @@
+[[rupakhanda|色]]、[[vedana|受]]、[[sanna|想]]、[[sankhara|行]]、[[vinnana|識]]。

@@ -1,0 +1,1 @@
+三世因果循環鏈條，[[avijja|無明]]→[[sankhara|行]]→[[vinnana|識]]→[[namarupa|名色]]→[[salayatana|六入]]→[[phassa|觸]]→[[vedana|受]]→[[tanha|愛]]→[[upadana|取]]→[[bhava|存有]]→[[jati|生]]→[[jaramarana|老死]]

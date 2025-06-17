@@ -1,0 +1,1 @@
+[[buddha|佛]] [[dhamma|法]] [[sangha|僧]]  

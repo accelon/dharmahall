@@ -1,0 +1,1 @@
+[[pancadvaravajjana|五門轉向]]心、[[somanassa|悅]]俱[[sampaticchana|領受]]心及[[upekkha|捨]]俱[[sampaticchana|領受]]心的集合名詞。

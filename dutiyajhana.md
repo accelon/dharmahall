@@ -1,0 +1,1 @@
+有[[piti|喜]]、[[sukha|樂]]和[[ekaggata|一境性]]兩個[[jhananga|禪支]]的[[jhana|禪那]]。

@@ -1,0 +1,1 @@
+六種[[indriya|感官]]各自對應感知的目標。即[[ruparammana|色塵]]、[[sota|聲]]塵、[[gandharammana|香塵]]、[[rasarammana|味塵]]、[[phassa|觸]]塵、[[dhammarammana|法塵]]。

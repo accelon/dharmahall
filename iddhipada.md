@@ -1,0 +1,1 @@
+[[iddhi|神變]]的基礎：[[chanda|欲]]、[[citta|心]]、[[padhanasankara|勤行]]、[[vimamsa|觀]]。

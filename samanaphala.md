@@ -1,0 +1,1 @@
+佛教[[沙門]]之修煉成果，即[[sotapanna|初果]]，[[sakadagami|二果]]，[[anagami|三果]]，[[arahat|四果]]。詳見[[samanaphala|沙門果]]

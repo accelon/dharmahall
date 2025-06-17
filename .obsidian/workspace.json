@@ -1,0 +1,195 @@
+{
+  "main": {
+    "id": "8c2a0dfa282ad331",
+    "type": "split",
+    "children": [
+      {
+        "id": "0291804a6e72915b",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "a392c33d72fe253c",
+            "type": "leaf",
+            "state": {
+              "type": "graph",
+              "state": {},
+              "icon": "lucide-git-fork",
+              "title": "Graph view"
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "vertical"
+  },
+  "left": {
+    "id": "0777b9bc712b2952",
+    "type": "split",
+    "children": [
+      {
+        "id": "f3efaa2b83c4e995",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "0c1f11a2bf3f4615",
+            "type": "leaf",
+            "state": {
+              "type": "file-explorer",
+              "state": {
+                "sortOrder": "alphabetical",
+                "autoReveal": false
+              },
+              "icon": "lucide-folder-closed",
+              "title": "Files"
+            }
+          },
+          {
+            "id": "7b257e91e41e9f5e",
+            "type": "leaf",
+            "state": {
+              "type": "search",
+              "state": {
+                "query": "bhagava",
+                "matchingCase": false,
+                "explainSearch": false,
+                "collapseAll": false,
+                "extraContext": false,
+                "sortOrder": "alphabeticalReverse"
+              },
+              "icon": "lucide-search",
+              "title": "Search"
+            }
+          },
+          {
+            "id": "9145963e53d23bfc",
+            "type": "leaf",
+            "state": {
+              "type": "bookmarks",
+              "state": {},
+              "icon": "lucide-bookmark",
+              "title": "Bookmarks"
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "horizontal",
+    "width": 200
+  },
+  "right": {
+    "id": "22bbf2cb25cb9d94",
+    "type": "split",
+    "children": [
+      {
+        "id": "e5225039002c6d85",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "29c6c5d6d23c0334",
+            "type": "leaf",
+            "state": {
+              "type": "backlink",
+              "state": {
+                "collapseAll": false,
+                "extraContext": false,
+                "sortOrder": "alphabetical",
+                "showSearch": false,
+                "searchQuery": "",
+                "backlinkCollapsed": false,
+                "unlinkedCollapsed": true
+              },
+              "icon": "links-coming-in",
+              "title": "Backlinks"
+            }
+          },
+          {
+            "id": "7d8a33010970d1ea",
+            "type": "leaf",
+            "state": {
+              "type": "outgoing-link",
+              "state": {
+                "linksCollapsed": false,
+                "unlinkedCollapsed": true
+              },
+              "icon": "links-going-out",
+              "title": "Outgoing links"
+            }
+          },
+          {
+            "id": "78c02b365605b922",
+            "type": "leaf",
+            "state": {
+              "type": "tag",
+              "state": {
+                "sortOrder": "frequency",
+                "useHierarchy": true,
+                "showSearch": false,
+                "searchQuery": ""
+              },
+              "icon": "lucide-tags",
+              "title": "Tags"
+            }
+          },
+          {
+            "id": "c3333f6840dd5f58",
+            "type": "leaf",
+            "state": {
+              "type": "outline",
+              "state": {
+                "followCursor": false,
+                "showSearch": false,
+                "searchQuery": ""
+              },
+              "icon": "lucide-list",
+              "title": "Outline"
+            }
+          }
+        ],
+        "currentTab": 3
+      }
+    ],
+    "direction": "horizontal",
+    "width": 200,
+    "collapsed": true
+  },
+  "left-ribbon": {
+    "hiddenItems": {
+      "switcher:Open quick switcher": false,
+      "graph:Open graph view": false,
+      "canvas:Create new canvas": false,
+      "daily-notes:Open today's daily note": false,
+      "templates:Insert template": false,
+      "command-palette:Open command palette": false
+    }
+  },
+  "active": "a392c33d72fe253c",
+  "lastOpenFiles": [
+    "broken links output.md",
+    "阿含.md",
+    "阿闥婆吠陀.md",
+    "比丘尼.md",
+    "憍陳如.md",
+    "tissamoggaliputta.md",
+    "帝須目犍連子.md",
+    "笈多王朝.md",
+    "犍陀羅.md",
+    "香塵.md",
+    "gandharammana.md",
+    "波斯.md",
+    "世友.md",
+    "婆沙四大論師.md",
+    "布施.md",
+    "罽賓.md",
+    "商那和修.md",
+    "律分五部.md",
+    "法藏部.md",
+    "如來十號.md",
+    "薄伽梵歌.md",
+    "薄伽梵.md",
+    "世尊.md",
+    "bhagava.md",
+    "第二次結集.md",
+    "耶舍.md",
+    "aijargon"
+  ]
+}

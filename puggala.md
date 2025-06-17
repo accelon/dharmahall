@@ -1,0 +1,1 @@
+作為獨立個體的[[manussa|人]] individual, person。

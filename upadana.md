@@ -1,0 +1,1 @@
+緊抓不願放下、執著。[[paticcasamuppada|十二緣起]]之九。

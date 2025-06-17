@@ -1,0 +1,1 @@
+到達[[nirodha|滅]]的道路，即[[atthangikamagga|八正道]]或三十七[[bodhipakkhika|道品]]。

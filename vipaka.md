@@ -1,0 +1,1 @@
+[[kamma|業]]產生的後果(熟了)。以[[vipakacitta|果報心]]或[[kammajarupa|業生色聚]]形式出現。

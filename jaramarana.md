@@ -1,0 +1,1 @@
+[[jara|老]]和[[marana|死]]，[[paticcasamuppada|十二緣起]]最後一支。

@@ -1,0 +1,1 @@
+屬於[[mohaakusalamula|痴不善根]]。

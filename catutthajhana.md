@@ -1,0 +1,1 @@
+只有[[upekkha|捨]]和[[ekaggata|一境性]]兩個[[jhananga|禪支]]的[[jhana|禪那]]。

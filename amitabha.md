@@ -1,0 +1,1 @@
+a無，mita(測量，與英語meter,mensure同源) ，[[原始印歐語]] bha (光)。

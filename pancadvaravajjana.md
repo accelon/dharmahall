@@ -1,0 +1,1 @@
+從[[bhavanga|有分]]轉向[[pancavinnana|五識]]。

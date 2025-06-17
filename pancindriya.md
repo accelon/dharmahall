@@ -1,0 +1,1 @@
+[[saddha|信]]根、[[viriya|精進]]根、[[sati|念]]根、[[samadhi|定]]根、[[prajna|慧]]根。

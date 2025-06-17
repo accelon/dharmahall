@@ -1,0 +1,1 @@
+觸覺感官，觸覺的物質基礎是耳中的身[[pasadarupa|淨色]]，與[[pathavi|地大]]、[[aggi|火]]、[[vata|風]]接[[phassa|觸]]時則生起[[kayavinnana|身識]]。

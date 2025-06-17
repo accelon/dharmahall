@@ -1,0 +1,1 @@
+從[[bhavanga|有分]]轉向[[javana|速行]]，在[[pancadvaravithi|五門心路]]稱為[[votthapana|確定]]心。

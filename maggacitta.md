@@ -1,0 +1,1 @@
+[[sotapanna|初果]]，[[sakadagami|二果]]，[[anagami|三果]]，[[arahat|四果]]之集合名詞，只升起一次。

@@ -1,0 +1,1 @@
+[[bhavangcalana|有分波動]]→[[bhavangaupaccheda|有分斷]]→[[manodvaravajjana|意門轉向]]→[[parikamma|遍作]]→[[upacara|近行]]→[[anuloma|隨順]]→[[gotrabhu|種性]]→[[appanajavana|速行]]*n

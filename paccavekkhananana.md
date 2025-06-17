@@ -1,0 +1,1 @@
+[[ariyapuggala|聖者]]識別剩餘的[[samyojana|結]]和[[anusayakilesa|隨眠煩惱]]之[[nana|智]]。

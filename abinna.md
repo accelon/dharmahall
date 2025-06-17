@@ -1,0 +1,1 @@
+六種超凡的能力。[[pancabinna|五神通]]加上[[khinasava|漏盡]]通。

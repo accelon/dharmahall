@@ -1,0 +1,1 @@
+只有[[vipassananana|觀智]]可以發現及滅除的深層[[kilesa|煩惱]]。

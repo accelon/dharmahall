@@ -1,0 +1,1 @@
+三種存在的世界，[[kamavacara|慾界]]、[[rupavacara|色界]]、[[arupavacara|無色界]]

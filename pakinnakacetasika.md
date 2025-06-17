@@ -1,0 +1,1 @@
+[[vitakka|尋]]、[[vicara|伺]]、[[adhimokkha|勝解]]、[[viriya|精進]]、[[piti|喜]]、[[chanda|欲]]的集合名詞。每一種心都可以有的[[cetasika|心所]]。

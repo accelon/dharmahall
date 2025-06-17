@@ -1,0 +1,1 @@
+此生第一個[[bhavanga|有分]]心，是上一世最後一個[[javana|速行]]的[[vipakacitta|果報心]]。

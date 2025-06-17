@@ -1,0 +1,1 @@
+[[pathamajhana|初禪]][[dutiyajhana|二禪]]及[[tatiyajhana|三禪]]的[[jhananga|禪支]]。

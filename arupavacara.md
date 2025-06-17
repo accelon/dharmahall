@@ -1,0 +1,1 @@
+臨終時保持[[arupavacarajjhana|無色界禪]]的人投生之處。命終後不會直接墮入[[apaya|苦趣]]。共有四層與[[arupavacarajjhana|無色界禪]]一一對應。

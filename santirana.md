@@ -1,0 +1,1 @@
+檢查[[arammana|所緣]]。可作為[[apaya|苦趣]]之[[vithimutta|離路]]心。

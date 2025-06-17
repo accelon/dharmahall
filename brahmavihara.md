@@ -1,0 +1,1 @@
+[[brahma|梵天]]一般的心態：[[metta|慈]]、[[karuna|悲]]、[[piti|喜]]、[[upekkha|捨]]。

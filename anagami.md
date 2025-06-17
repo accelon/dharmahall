@@ -1,0 +1,1 @@
+永斷[[kamaraga|慾貪]]、[[vyapada|瞋恚]]。死後投生[[suddhavasa|淨居天]]，於該處證涅槃，不再來人間。

@@ -1,0 +1,1 @@
+[[atitabhavanga|過去有分]]→[[bhavangcalana|有分波動]]→[[bhavangaupaccheda|有分斷]]→[[pancadvaravajjana|五門轉向]]→[[pancavinnana|五識]]→[[sampaticchana|領受]]→[[santirana|推度]]→[[votthapana|確定]]→[[javana|速行]]*7→[[tadarammana|彼所緣]]*2

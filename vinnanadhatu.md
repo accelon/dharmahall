@@ -1,0 +1,1 @@
+六種[[indriya|感官]]對應的六種識別作用。即：[[cakkhuvinnana|眼識]]界、耳識界、鼻識界、舌識界、身識界、[[manovinnanadhatu|意識]]界。

@@ -1,0 +1,1 @@
+[[thina|昏沉]][[middha|睡眠]]、[[vicikiccha|疑]]。

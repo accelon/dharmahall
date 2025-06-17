@@ -1,0 +1,1 @@
+[[lobha|貪]]與[[miccaditthi|邪見]]或[[mana|慢]]。

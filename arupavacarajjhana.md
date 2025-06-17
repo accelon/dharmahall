@@ -1,0 +1,1 @@
+能投身[[arupavacara|無色界]]的四種[[samadhi|禪定]]，即[[akasanancayatana|空無邊處]][[vinnanancayatana|識無邊處]][[akincannayatana|無所有處]][[nevasannanasannayatana|非想非非想處]]。

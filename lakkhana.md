@@ -1,0 +1,1 @@
+共同或獨有性質。佛有[[dvattimsalakkhana|三十二相]]。

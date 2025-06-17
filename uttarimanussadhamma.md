@@ -1,0 +1,1 @@
+超越常人之成就，即：jhānaṁ禪那 vimokkho解脫 samādhi定  samāpatti等至 ñāṇadassanaṁ智見 maggabhāvanā道的修習 phalasacchikiriyā果的作證 kilesappahānaṁ煩惱捨斷 vinīvaraṇatā離障-cittassa心的 suññāgāre空屋 abhirati樂。

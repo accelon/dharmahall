@@ -1,0 +1,1 @@
+[[sakkayaditthi|有身見]]、[[vicikicchasamyojana|疑結]]、[[silabbata|戒禁取]][[samyojana|結]]。

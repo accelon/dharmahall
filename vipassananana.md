@@ -1,0 +1,1 @@
+修習[[vipassana|內觀]]即[[satipatthana|四念住]]而得的[[nana|智]]。即：[[namarupa|名色]]分別智,[[paccupatthana|十二緣起]]攝受智,思惟智,生滅智,壞智,怖畏現起智,過患智,厭離智,欲解脫智,審察智,[[sankharupekkha|行捨]]智,[[gotrabhu|種性]]智,[[magganana|道智]],[[phalanana|果智]],[[paccavekkhananana|省察智]]。

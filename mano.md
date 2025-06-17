@@ -1,0 +1,1 @@
+知覺感官(非物理)，即[[bhavanga|有分]]。[[dhammarammana|法塵]]與之接[[phassa|觸]]時產生[[manovinnanadhatu|意識]]。

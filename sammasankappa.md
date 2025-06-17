@@ -1,0 +1,1 @@
+正確的意圖和目的。詳見[[yonisomanasikara|根本作意]]。

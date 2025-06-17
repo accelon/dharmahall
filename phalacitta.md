@@ -1,0 +1,1 @@
+緊接著[[maggacitta|道心]]之後升起，於[[appanavithi|安止心路]]連續升起。

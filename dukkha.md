@@ -1,0 +1,1 @@
+[[ariyasacca|四聖諦]]之首。[[jati|生]]苦、[[jara|老]]苦、[[byadhi|病]]苦、[[marana|死]]苦、[[sokaparidevadukkhadomanassupayasa|愁哀苦憂惱]]苦、所求不得苦、[[五取蘊]]苦。

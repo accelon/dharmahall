@@ -1,0 +1,1 @@
+能投身[[rupavacara|色界]]的四種[[samadhi|禪定]]，即[[pathamajhana|初禪]][[dutiyajhana|二禪]][[tatiyajhana|三禪]][[catutthajhana|四禪]]。

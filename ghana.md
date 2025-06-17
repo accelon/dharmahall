@@ -1,0 +1,1 @@
+嗅覺感官，嗅覺的物質基礎是耳中的鼻[[pasadarupa|淨色]]，與[[gandharammana|香]]踫[[phassa|觸]]時則生起[[ghanavinnana|鼻識]]。

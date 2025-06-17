@@ -1,0 +1,1 @@
+[[niraya|地獄]]、[[tiracchana|畜生]]、[[peta|鬼]]、[[manussa|人]]、[[deva|慾界天]]。前三者為[[apaya|苦趣]]。

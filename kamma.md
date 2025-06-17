@@ -1,0 +1,1 @@
+[[cetana|思]]心所在[[javana|速行]]階段所造的善或[[akusalamula|三不善根]]，將會在未來某個時刻產生[[vipaka|果報]]。

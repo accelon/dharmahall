@@ -1,0 +1,1 @@
+將[[sati|念]]固定於正確的[[arammana|所緣]]，詳見[[satipatthana|四念住]]。

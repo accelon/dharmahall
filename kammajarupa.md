@@ -1,0 +1,1 @@
+由[[kamma|業]]而生的[[rupakalapa|色聚]]。包括所有[[pasadarupa|淨色]]及[[hadayarupa|心色]]、性根色、命根色。

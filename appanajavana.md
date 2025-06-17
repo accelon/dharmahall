@@ -1,0 +1,1 @@
+以[[jhana|禪那]]或[[phalacitta|果心]]為[[javana|速行]]。有別於[[kamavacara|慾界]]的[[javana|速行]]，可升起超過七次。
